@@ -1,0 +1,1 @@
+[大麻規制検討小委員会｜厚生労働省](https://www.mhlw.go.jp/stf/newpage_25666.html)
