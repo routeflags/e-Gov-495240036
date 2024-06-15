@@ -47,3 +47,12 @@
 ## 問合せ先
 厚生労働省医薬局監視指導・麻薬対策課
 
+## References
+- [大麻法改正について CANNABIS JAPAN](https://allcannabinoid.notion.site/dc355a688201415bb9b25f48595d3a64)
+- [【拡散希望！】10月からCBD製品が使えなくなるかもしれません - YouTube](https://www.youtube.com/watch?v=U68doJbYjr4)
+- [パブリックコメントに対する整理と論考 | GREEN ZONE JAPAN](https://www.greenzonejapan.com/2024/06/11/pubcomm/)
+- [KCAラボジャパン_単位換算表](https://docs.google.com/spreadsheets/d/1OZk1B3oFs9i0-Pny8Qbc5hLUFDAn9RF98Gttz0rq4c0/edit?gid=0#gid=0)
+- [大麻法改正におけるAIを使ったパブコメ作成法｜Seisyuntaima](https://note.com/seisyuntaima/n/nd7118b8675c9)
+- [LINEでパブコメ](https://line.me/R/ti/p/@026yaxvc?from=page&accountId=026yaxvc)
+
+
