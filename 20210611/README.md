@@ -1,2 +1,0 @@
-- [令和３年６月11日　第８回「大麻等の薬物対策のあり方検討会」　議事録](https://www.mhlw.go.jp/stf/shingi/2r98520000031ehd_00008.html)
-- [mhlw.go.jp/stf/shingi2/0000158516_00008.html](https://www.mhlw.go.jp/stf/shingi2/0000158516_00008.html)

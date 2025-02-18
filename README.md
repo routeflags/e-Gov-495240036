@@ -54,5 +54,3 @@
 - [KCAラボジャパン_単位換算表](https://docs.google.com/spreadsheets/d/1OZk1B3oFs9i0-Pny8Qbc5hLUFDAn9RF98Gttz0rq4c0/edit?gid=0#gid=0)
 - [大麻法改正におけるAIを使ったパブコメ作成法｜Seisyuntaima](https://note.com/seisyuntaima/n/nd7118b8675c9)
 - [LINEでパブコメ](https://line.me/R/ti/p/@026yaxvc?from=page&accountId=026yaxvc)
-
-
